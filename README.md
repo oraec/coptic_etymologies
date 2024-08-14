@@ -1,0 +1,1 @@
+# coptic_etymologies
